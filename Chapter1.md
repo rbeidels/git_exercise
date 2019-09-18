@@ -1,0 +1,1 @@
+Our hero, Yeezy, is chilling backstage at the VMAs, furious that Tay had taken a title from Bey. He calls Jay-Z up and asks, "Can you believe this? Beyonce had the greatest video of all time!" Jay-z replied, "It's okay, man. Let the young girl enjoy the limelight, she earned it, Beyonce has enough trophies." Yeezy stormed off into the VMAS.
